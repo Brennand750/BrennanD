@@ -3,3 +3,4 @@ THERE WAS ONCE a very rich merchant who had three daughters.  Being a man of sen
 
 The two elder sisters had a great deal of pride because they were rich. They gave themselves ridiculous airs, and would not visit other merchants' daughters, nor keep company with any persons but those of the highest standing. They went out every day to parties, balls, plays, concerts, and so forth, and they laughed at their youngest sister who spent so much of her time with a book in front of her face.
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/b582fa22-6d3a-4b5b-bc38-908bc602534d" />
+<img width="474" height="634" alt="image" src="https://github.com/user-attachments/assets/dbfb6308-8289-46cf-af2a-ede84b2a579c" />
